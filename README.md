@@ -2,7 +2,6 @@
 Heres a small introduction about me !! <br>
 I dont have a big DNI list,,, as long as youre not rude or anything ill be more than happy to be your friend !! <br>
 I have LOADS of interests.. too many to name really :/ but if you wanna know some of them.. take a look at my strawpage :D <br>
-Please keep in mind I use they/them pronouns... people tend to forget so I just wanted to add that in to make sure <br>
 ALSO !!  sign my ata please (˶ᵔ ᵕ ᵔ˶) ‹𝟹 <br>
 <br>
 <br>
